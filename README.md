@@ -6,4 +6,4 @@ e meus estudos como entusiasta da Cyber segurança.
 
 Obs: Os download para assistir os videos estão no link do google drive.
 
-Link: https://drive.google.com/drive/folders/1PUp5XuRhv9qeI0CI1U94gZolyWmXGXUO?usp=sharing
+Link: https://drive.google.com/drive/folders/1bp5q8tdCQVLhXb7t19ZI65BxU9flTk0C?usp=sharing

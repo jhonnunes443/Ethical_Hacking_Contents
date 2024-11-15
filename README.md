@@ -5,3 +5,5 @@ Ethical hacking, progrmação e redes em geral que aprendi e estou aprendendo no
 e meus estudos como entusiasta da Cyber segurança.
 
 Obs: Os download para assistir os videos estão no link do google drive.
+
+Link: https://drive.google.com/drive/folders/1PUp5XuRhv9qeI0CI1U94gZolyWmXGXUO?usp=sharing
